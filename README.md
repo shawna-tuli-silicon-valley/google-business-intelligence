@@ -4,4 +4,4 @@
 
 • Shawna Tuli 2023 Google Certificate in The Path to Insights: Data Models and Pipelines
 
-• Shawna Tuli 2023 Google Certificate in Decision, Decisions: Dashboards and Reports 
+• [Shawna Tuli 2023 Google Certificate in Decision, Decisions: Dashboards and Reports](https://www.coursera.org/account/accomplishments/verify/AU8QPWV5AQZK) 
